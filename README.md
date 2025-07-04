@@ -1,1 +1,3 @@
-![1000012342](https://github.com/user-attachments/assets/b9229c32-f081-4752-9dd6-b1ec500c31b6)
+![1000012246](https://github.com/user-attachments/assets/35f7ed0f-c0f2-48ce-99a6-4f35fdca25a7)
+
+(⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`) 
