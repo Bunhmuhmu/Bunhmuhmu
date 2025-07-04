@@ -3,5 +3,7 @@
 Game i'm playing, add me if u want 
 
 Asia Server:
+
 Hsr: 834166639
+
 Gi: 893276312 and 893810576
