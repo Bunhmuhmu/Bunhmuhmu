@@ -1,4 +1,4 @@
-![1000012246](https://github.com/user-attachments/assets/35f7ed0f-c0f2-48ce-99a6-4f35fdca25a7)
+![1000012577](https://github.com/user-attachments/assets/f364d4e6-b8a1-406c-9dbb-94a253cb34d2)
 
 ↬☆Game i'm playing, add me if u want(๑˃̵ᴗ˂̵)و
 
