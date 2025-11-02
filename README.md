@@ -8,7 +8,7 @@
 
 ﾟ°☆ Gi: 893276312 and 893810576
 
-![1000014607](https://github.com/user-attachments/assets/a4966f51-4de1-4fec-9b27-c95ab9329b57)
+![1000015622](https://github.com/user-attachments/assets/a1a82e9a-7282-447d-b54c-c1e0ba271750)
 
    Oº°‘¨(⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)¨‘°ºO
 
