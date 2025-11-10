@@ -14,6 +14,6 @@
 
 ![1000014875](https://github.com/user-attachments/assets/20ba5536-2ff0-4c0d-a3fb-df2cf63d0707)
 
-![1000012351](https://github.com/user-attachments/assets/adbb728c-41d9-4822-b3a0-7f5e9cc6c3db)
+![1000020371](https://github.com/user-attachments/assets/39d5e6d0-92b2-4845-9148-c32d093c243b)
 
 Boothill and Arlecchino main! I love them so much<3
