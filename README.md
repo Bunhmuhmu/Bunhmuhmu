@@ -17,3 +17,5 @@
 ![1000020371](https://github.com/user-attachments/assets/39d5e6d0-92b2-4845-9148-c32d093c243b)
 
 Boothill and Arlecchino main! I love them so much<3
+
+and also Phainon!! ʕ⁠´⁠•⁠ ⁠ᴥ⁠•̥⁠`⁠ʔ
