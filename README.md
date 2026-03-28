@@ -6,9 +6,7 @@
 
 ﾟ°☆ Hsr: 834166639
 
-ﾟ°☆ Gi: 893276312 and 893810576
-
-![1000015622](https://github.com/user-attachments/assets/a1a82e9a-7282-447d-b54c-c1e0ba271750)
+ﾟ°☆ Gi: 893276312
 
    ![1000021138](https://github.com/user-attachments/assets/13f4703c-f1ab-4570-8292-cb88852ade4e)
 
