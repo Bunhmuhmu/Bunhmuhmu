@@ -12,7 +12,7 @@
 
    Oº°‘¨(⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)¨‘°ºO
 
-![1000014875](https://github.com/user-attachments/assets/20ba5536-2ff0-4c0d-a3fb-df2cf63d0707)
+<img width="292" height="302" alt="1000023902" src="https://github.com/user-attachments/assets/a11abc6b-bd3b-4bc3-878a-8d2d1b94623a" />
 
    ⁠      (⁠＠⁠°⁠▽⁠°⁠＠⁠)
 
